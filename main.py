@@ -33,9 +33,6 @@ Registration Number:
 Name:
 Anuj Malviya
 
-Email:
-[anujmalviya230166@acropolis.i
-
 After verification:
 
 1. Apply changes permanently.
