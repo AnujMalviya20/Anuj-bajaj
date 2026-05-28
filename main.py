@@ -34,7 +34,7 @@ Name:
 Anuj Malviya
 
 Email:
-[anujmalviya230166@acropolis.in](mailto
+[anujmalviya230166@acropolis.i
 
 After verification:
 
